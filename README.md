@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about my favorite thing on python
 - 📫 How to reach me: leonelbruno972@gmail.com
 - 😄 Pronouns: He
-- ⚡ Fun fact: I will be the best programer in the world 
+- ⚡ Fun fact: I will be a Hokague!!🦊🦊
 
